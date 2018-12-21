@@ -48,3 +48,11 @@ transkript Ej uhnjem:
     Yeshcho razik, yeshcho da raz!
     Ey, ukhnyem!
     Ey, ukhnyem!
+
+https://cdn.discordapp.com/attachments/380702871097835520/525820837237096476/IMG_20181221_110925.jpg
+https://cdn.discordapp.com/attachments/380702871097835520/525820836767072276/IMG_20181221_110932.jpg
+https://cdn.discordapp.com/attachments/380702871097835520/525820499842957348/IMG_20181221_111014.jpg
+https://cdn.discordapp.com/attachments/380702871097835520/525820449632813066/IMG_20181221_111149.jpg
+
+**Koruptirano??**
+https://cdn.discordapp.com/attachments/380702871097835520/525820500601995284/IMG_20181221_111022.jpg
