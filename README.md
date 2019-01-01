@@ -7,7 +7,8 @@ PS: Pastirče mlado i milo
     
     
 transkript Ej uhnjem:
-        Ey, ukhnyem!
+    
+    Ey, ukhnyem!
     Ey, ukhnyem!
     Yeshcho razik, yeshcho da raz!
     Ey, ukhnyem!
